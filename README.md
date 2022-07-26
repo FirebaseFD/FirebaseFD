@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @FreeDakshYT
+- 👀 I’m interested in playing games & coding
+- 🌱 I’m currently learning HTML, CSS & JS
+- 💞️ I’m looking to collaborate on github with my friends
+- 📫 How to reach me -
+- Insta - Free Gaming , shikhar_viii_d
